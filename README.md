@@ -1,1 +1,1 @@
-Grupo: Anna Clara, Arianny, Gabriele e Giovana
+Grupo: Anna Clara, Arianny, Gabriele e Giovanna
